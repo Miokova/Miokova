@@ -9,4 +9,4 @@ I have experience in the administrative field, where I worked on improving busin
 - Information Structuring
 
 #### Образование (Education)
-- Курс "Аналитика данных" (Data Analytics) в Яндекс Практикум (Yandex Practicum), 2023  
+- Курс "Аналитика данных" (Data Analytics) в Яндекс Практикум (Yandex Practicum), 2023-2024🎓
